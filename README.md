@@ -1,2 +1,2 @@
-# TetrTetri.com
+# eh hehe
 *insert intense thinking meme here*
